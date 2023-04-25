@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there! I'm Anir. Let's connect @ anirhalder09@gmail.com to talk more about my freshly acquired skills in Marketing Analytics and Business Intelligence 👋
 
 <!--
 **anirhal/anirhal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
